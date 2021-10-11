@@ -1,0 +1,2 @@
+# Arquiteturarte
+  Escritório de Arquitetura, na qual atende projetos residenciais, comerciais e de interiores.  Os projetos são realizados de forma personalizada e singular, na qual a funcionalidade, a estética e praticidade são os pilares da nossa missão. Com metodologia de trabalho que possibilita desenvolver projetos criativos, funcionais e harmônicos, levando a uma experienci[ação] dos nossos serviços. 
